@@ -1,2 +1,2 @@
-# Mafi
+# Mafi has a rich 🤑 
 Not
